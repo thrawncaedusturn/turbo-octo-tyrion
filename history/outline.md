@@ -19,5 +19,14 @@
 	- Supported them after October Revolution during British-Afghani War
 	- 1979: revolt in Herat, 100 Soviets killed
 	- http://books.google.com/books?id=RUSNyMH1aFQC&pg=PA130&dq=herat+soviet+revolt+1979+3000&cd=2&hl=en#v=onepage&q=herat%20soviet%20revolt%201979%203000&f=false
-	
-	
+	- Offensives began May 16, 1982
+	- Soviets brought in 12,000 troops, 100 heliocopters, 25 airplanes
+	- Began with an aerial bombardment of valley passway
+	- Divided mujahadeen troops decimated Russian forces
+	- Mines destroyed remaining troops
+	- Soviets retreated, albeit temporarily
+	- August through September 1982 saw increased Soviet activity
+	- Massoud blended in with civilians and hid in mountainous caves to camouflage troops from Soviet helicopters
+	- Mines once again decimated Soviets
+	- Soviets finally called a cease-fire with Massoud
+- Reason 2 Paragraph: Osama Bin Laden & Taliban
