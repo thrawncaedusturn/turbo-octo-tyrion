@@ -29,4 +29,13 @@
 	- Massoud blended in with civilians and hid in mountainous caves to camouflage troops from Soviet helicopters
 	- Mines once again decimated Soviets
 	- Soviets finally called a cease-fire with Massoud
+	- Peace was only temporary
+	- Change in soviet govt resulted in a new battle plan (for PR's sake)
+	- Some Soviets *disagreed* with leadership over plans to attack Afghanistan again
+	- Leaked knowledge of the attack to Massoud
+		- Massoud evacuated 30,000 civilians from the valley
+		- Placed mines at landing sites and on roads
+		- Maintained a token presence at the Soviet site to avoid arousing suspicion
+		- 11,000 Soviets and Afghan Army troops attacked Massoud
+		
 - Reason 2 Paragraph: Osama Bin Laden & Taliban
