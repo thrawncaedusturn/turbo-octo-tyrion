@@ -18,6 +18,6 @@
 	- http://news.bbc.co.uk/2/hi/in_pictures/7885644.stm
 	- Supported them after October Revolution during British-Afghani War
 	- 1979: revolt in Herat, 100 Soviets killed
-		- http://books.google.com/books?id=RUSNyMH1aFQC&pg=PA130&dq=herat+soviet+revolt+1979+3000&cd=2&hl=en#v=onepage&q=herat%20soviet%20revolt%201979%203000&f=false
-	-
+	- http://books.google.com/books?id=RUSNyMH1aFQC&pg=PA130&dq=herat+soviet+revolt+1979+3000&cd=2&hl=en#v=onepage&q=herat%20soviet%20revolt%201979%203000&f=false
+	
 	
