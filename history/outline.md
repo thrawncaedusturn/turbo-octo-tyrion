@@ -1,3 +1,3 @@
 - Introduction
-	- The Soviet invasion of Afghanistan is the single most signficant event in recent human history, causing seismic changes in the very dynamic of the world itself
+	- The Soviet invasion of Afghanistan is the single most signficant event in recent human history, causing seismic changes in the very dynamic of the world itself. The upending of the Soviet Union shattered the terror of the Cold War, and lulled America into an age, brief but devastating, of nonchalance and confidence as the only superpower. This age would prove catastrophic, as another product of this conflict, the Taliban, would go on to spawn the most dangerous terrorist the United States had ever faced: Osama bin Laden. Perhaps most importantly, the death of the USSR only increased the reliance that the United States had on China - the reliance that leaves us more and more beholden to the largest Communist nation in the modern world.
 	
