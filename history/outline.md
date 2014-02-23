@@ -8,4 +8,16 @@
 	- Situation in east/west germany
 		- Embargo in Berlin
 		- Puppet wars
+	- Panjshir offensives were a series of battles in 1982 between U.S. supported (limited) Mujaheeden freedom fighters and USSR
+	- Most important and costly offensives of the soviet invasion
+	- Centered around a valley passway
+- Reason 1 Paragraph: Destruction of the Soviet Union
+	- Afghanistan had been major client state of USSR
+	- Relied on them for materials, protection and defense
+	- Built hospitals and universities
+	- http://news.bbc.co.uk/2/hi/in_pictures/7885644.stm
+	- Supported them after October Revolution during British-Afghani War
+	- 1979: revolt in Herat, 100 Soviets killed
+		- http://books.google.com/books?id=RUSNyMH1aFQC&pg=PA130&dq=herat+soviet+revolt+1979+3000&cd=2&hl=en#v=onepage&q=herat%20soviet%20revolt%201979%203000&f=false
+	-
 	
