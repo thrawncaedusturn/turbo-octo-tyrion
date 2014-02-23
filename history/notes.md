@@ -1,0 +1,40 @@
+- Minor muj presence allowed them to blend in w/ crowd and avoid detection
+- After first three offensives, Soviets sent in tanks w/ sappers to destroy mines
+- Tactic failed, 100 dead
+- Only made 25 km in, left after casualties mounted
+- Massoud (leader of muj) had assembled enough troops to repel Soviets, but placed mines to avoid combatant loss of life
+- Pan. 5:
+    - 12,000 soldiers
+    - May 16, 1982
+    - 100 helicopters
+    - 25 airplanes
+    - Began with bombardment of valley
+    - Motorized rifles attacked frontlines
+    - Helicoptered troops choppered in behind muj lines
+    - Massoud combated by placing troops at entrance
+    - Guerrilla offensive strategy by muj helped prevent consolidated destruction of forces (divide and conquer)
+    - Soviets establish bases
+
+- Pan 6:
+    - Search and destroy missions preceded the attack
+    - August through September 1982
+    - By hiding with civilians, Massoud lost relatively few troops
+    - Offensive losses on soviet side was so high that the soviets agreed to a truce w/ Massoud
+    - Fighting still continued in certain small areas
+
+- Pan 7:
+    - Change in Soviet govt dictated change in military policy
+    - Split in Soviets meant that some agreed with new course of action (destroy everything in valley) and some did not
+    - Those who disagreed w/ govt alerted Massoud about impending destruction
+        - Massoud evacuated all civilians (30,000)
+        - Mines were placed at helicopter landing sites and roads
+        - Ruse operation took place near Soviet base
+        - 11k Soviet troops and Afghans began to attack
+        - Several battalions placed at key passes
+        - Blocked muj escapes and covered air with helicopters
+        - Soviets occupied mujahadeen infrastructure
+
+- Why it matters
+    - Soviets lost far too many soldiers and vehicles to justify war
+    - Agreed to pull out
+    - Resulted in the downfall of Soviet empire
