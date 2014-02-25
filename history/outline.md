@@ -37,5 +37,13 @@
 		- Placed mines at landing sites and on roads
 		- Maintained a token presence at the Soviet site to avoid arousing suspicion
 		- 11,000 Soviets and Afghan Army troops attacked Massoud
-		
 - Reason 2 Paragraph: Osama Bin Laden & Taliban
+ 	- Bin Laden arrived in Afghanistan in 1979
+ 	- Used personal funds and family money to fund mujahadeen
+ 	- Connected with Pakistani intelligence generals, who wanted Soviets to be defeated
+ 	- Paid for and trained mujahadeen fighters
+ 	- Founded the Afghan Services Bureau
+ 	- Tried to create Islamist government in Afghanistan
+ 	- Succeeded, and Taliban gained power through Peshawar Accords
+ 	- Assassination of his partner caused bin Laden to flee and integrated ASB with AQ
+ 	- 
