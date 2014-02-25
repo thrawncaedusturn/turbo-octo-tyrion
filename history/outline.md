@@ -31,7 +31,7 @@
 	- Soviets finally called a cease-fire with Massoud
 	- Peace was only temporary
 	- Change in soviet govt resulted in a new battle plan (for PR's sake)
-	- Some Soviets *disagreed* with leadership over plans to attack Afghanistan again
+	- Some Soviets disagreed* with leadership over plans to attack Afghanistan again
 	- Leaked knowledge of the attack to Massoud
 		- Massoud evacuated 30,000 civilians from the valley
 		- Placed mines at landing sites and on roads
@@ -46,4 +46,6 @@
  	- Tried to create Islamist government in Afghanistan
  	- Succeeded, and Taliban gained power through Peshawar Accords
  	- Assassination of his partner caused bin Laden to flee and integrated ASB with AQ
- 	- 
+ 	- Bin Laden continued to train and recruit in Afghanistan 
+ 	- Orchestrated 9/11
+ - Reason 3: Chinese dependency
