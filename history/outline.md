@@ -52,3 +52,9 @@
  	- Soviet Union & China were dominant Communist forces globally
  	- W/ downfall of the Soviets China gained increased power and influence over other Communist countries
  	- China began to exert power in the United Nations 
+ 	- Increased government stimulus resulted in massive population growth/wealth growth
+ 	- Mass production of goods meant cheap labor for American companies
+ - Conclusion: Chinese growth, Osama bin Laden, downfall of the Soviet Union
+ 	- When the SU fell, both AQ and China emerged victorious
+ 	- China had lost a major competitor
+ 	- AQ had gained a following and popularity in the Middle East
