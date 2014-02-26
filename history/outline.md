@@ -49,3 +49,6 @@
  	- Bin Laden continued to train and recruit in Afghanistan 
  	- Orchestrated 9/11
  - Reason 3: Chinese dependency
+ 	- Soviet Union & China were dominant Communist forces globally
+ 	- W/ downfall of the Soviets China gained increased power and influence over other Communist countries
+ 	- China began to exert power in the United Nations 
