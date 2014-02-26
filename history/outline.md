@@ -58,3 +58,4 @@
  	- When the SU fell, both AQ and China emerged victorious
  	- China had lost a major competitor
  	- AQ had gained a following and popularity in the Middle East
+ 	- AQ now had cash reserves and desire to destroy US
